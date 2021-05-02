@@ -28,8 +28,8 @@ Hi Guys
 
 💢For more details about this tool you can contact me:
 
-🆔Telegram : https://t.me/offline4ll4​​
+🆔Telegram : https://t.me/offline4ll4
 
-🆔Group : https://t.me/Offline4ll4_gr​
+🆔Group : https://t.me/Offline4ll4_gr
 
 🆔Gmail : 0ffline4ll4@gmail.com
